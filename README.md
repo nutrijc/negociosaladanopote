@@ -1,0 +1,2 @@
+# negociosaladanopote
+GitHub Pages
